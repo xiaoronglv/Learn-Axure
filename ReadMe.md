@@ -6,13 +6,7 @@
 
 [汉化中文版](http://www.woshipm.com/xiazai/58714.html)
 
-## 安装后激活
 
-安装后输入这个 key 可以激活软件
-
-Name: TEAM BEAN 2014
-
-License Key: rF8fyNi2FowiWOA95kJIvFJZCbVFu7j8QyMAr2PPDi7Q/fStXyqt6e8h5lfNYgb+
 
 是否购买正版，你们自行斟酌，盗版可耻。 ^_^
 
